@@ -1,2 +1,1 @@
-# Carteira-01
-Grupo Menezes S/A.:
+0x1f700a5266ea59f6d20ca21162cb9a5520db26850ff4399a6d393b396da11a4e
